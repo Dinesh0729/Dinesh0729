@@ -18,5 +18,5 @@ Anime
 
 
 📫 How to Reach Me
-Email: cdineshkumar42@gmail.com
+Email: cdineshkumar42@gmail.com and 
 Linkedin :https://www.linkedin.com/in/dinesh-kumar-c-049998257?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
