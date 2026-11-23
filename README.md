@@ -13,9 +13,6 @@ Other Technologies: Kafka, Good Knowledge about Big Data
 🌱 Currently Learning
 AI-related things
 
-👀 Interested in
-Anime
-
 
 📫 How to Reach Me
 Email: cdineshkumar42@gmail.com and 
